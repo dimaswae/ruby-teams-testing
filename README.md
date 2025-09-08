@@ -5,4 +5,4 @@ Mentor : Dimas Rizqia Hidayat
 Team Ruby jaya jaya jaya
 
 Anggota :
-1. 
+1. Ratna Reviana Aprianti E5
